@@ -1,0 +1,1 @@
+Adoratore del [[Moander|Dio della Decadenza]]. Ha ucciso [[Zar]] e [[Baela]] nella [[Foresta del Vento Morente]]. 

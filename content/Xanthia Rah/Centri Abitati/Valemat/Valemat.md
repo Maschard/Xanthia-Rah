@@ -1,0 +1,1 @@
+Valemat è la capitale di [[Xanthia Rah]]. 

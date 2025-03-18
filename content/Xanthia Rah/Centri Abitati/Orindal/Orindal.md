@@ -1,0 +1,1 @@
+Città di [[Xanthia Rah]] che si trova su una via alternativa alla [[La Grande Via del Commercio|Grande Via del Commercio]]. Si trova a Sud di [[Thalmaris]], a Ovest di [[Orveleth]], a Nord si [[Thalvyn]], e ad Est di [[Zorlinth]]. 

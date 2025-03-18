@@ -1,0 +1,1 @@
+Leggendaria birra creata da [[Thural Aradal]] della [[Casata Aradal]]. Si dice che abbia scritto una sola copia della ricetta e l'abbia strappata in due: una metà è custodita dalla [[Casata Aradal]], l'altra l'ha nascosta da qualche parte nel [[Il Labirinto di Granito|labirinto di Granito]].

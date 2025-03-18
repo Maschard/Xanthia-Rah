@@ -1,0 +1,1 @@
+Antenato della [[Casata Aradal]]. Famoso per l'invenzione di una birra leggendaria, chiamata [[La cotta del Re]]. 

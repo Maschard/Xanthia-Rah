@@ -1,0 +1,1 @@
+È un'importante città commerciale situata a Sud Ovest della regione di [[Xanthia Rah]].

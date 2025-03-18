@@ -1,0 +1,1 @@
+È la città elfica situata nell'estremo oriente della regione di [[Xanthia Rah]].

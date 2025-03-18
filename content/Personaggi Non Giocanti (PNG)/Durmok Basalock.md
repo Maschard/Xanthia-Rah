@@ -1,0 +1,1 @@
+Portavoce dei mercanti di [[Uruz]], membro parte del [[Consiglio di Uruz|Consiglio]].

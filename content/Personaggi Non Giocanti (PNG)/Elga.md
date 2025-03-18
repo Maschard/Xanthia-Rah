@@ -1,0 +1,1 @@
+Guardia cittadina di [[Orindal]]. Gentile, giusta. All'occorrenza tira fuori le unghie.

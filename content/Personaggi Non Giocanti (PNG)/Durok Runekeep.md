@@ -1,0 +1,1 @@
+Abitante di [[Uruz]], abile runolgo e membro del [[Consiglio di Uruz|Consiglio]]. 

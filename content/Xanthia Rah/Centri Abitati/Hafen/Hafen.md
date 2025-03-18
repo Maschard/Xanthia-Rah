@@ -1,0 +1,1 @@
+Villaggio di Halfling di [[Xanthia Rah]]. 

@@ -1,0 +1,1 @@
+Anziana artigiana di [[Uruz]], membro del [[Consiglio di Uruz|Consiglio]].

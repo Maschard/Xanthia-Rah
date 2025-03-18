@@ -1,0 +1,1 @@
+Personaggio che si è appropriato de [[La cotta del Re]]. Un cercatore di tesori, un mercenario senza scrupoli.

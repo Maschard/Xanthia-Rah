@@ -1,0 +1,1 @@
+Fitta rete di cunicoli sotto la città di [[Uruz]], un tempo miniera, poi abbandonata.

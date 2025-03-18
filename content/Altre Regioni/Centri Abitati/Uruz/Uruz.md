@@ -1,0 +1,1 @@
+Città nanica natale di [[Tordek Battleaxe]].

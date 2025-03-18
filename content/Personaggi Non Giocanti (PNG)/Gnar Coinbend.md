@@ -1,0 +1,1 @@
+Il più anziano e rispettato membro del [[Consiglio di Uruz|Consiglio]] di [[Uruz]].

@@ -1,0 +1,1 @@
+È una delle [[Gilda dei Cacciatori di Taglie|gilde dei cacciatori di taglie]]. Non ha una sede ben precisa, ma generalmente opera sia ad [[Orveleth]] che [[Orindal]].

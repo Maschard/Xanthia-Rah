@@ -1,0 +1,1 @@
+Guardia cittadina di [[Orindal]]. Attaccabrighe e presuntuosa.

@@ -1,0 +1,1 @@
+Locanda di [[Orindal]].

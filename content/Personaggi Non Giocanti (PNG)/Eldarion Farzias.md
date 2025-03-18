@@ -1,0 +1,1 @@
+Patriarca dell'importante [[Casata Farzias]] di [[Ol En Khi]]. Morto durante l'evento ricordato come [[Lo sterminio dei Farzias]].

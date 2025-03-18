@@ -1,0 +1,1 @@
+Della [[Casata Marblehide]], intima amica di [[Hardal Aradal]].
